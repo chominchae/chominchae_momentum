@@ -1,1 +1,1 @@
-# chominchae_momentum.github.io
+# chominchae_momentum
